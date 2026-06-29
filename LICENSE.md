@@ -1,4 +1,4 @@
-# 
+# minecraft Scripts automatic offers the most advanced minecraft Script, with god mode and instant win. Perfect for dominating any match.
 
 
 
